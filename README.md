@@ -1,2 +1,2 @@
-# jagdishuniversity
-Education Hub
+# Jagdish University
+<br>Education Hub
